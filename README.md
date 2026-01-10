@@ -1,3 +1,0 @@
-# Portfoli_2
-67 76 7676 76 767676 76 76 76 76 76 76 76 76 7676
-github thingy/index.html
